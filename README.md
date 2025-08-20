@@ -34,3 +34,4 @@ I also haven't been listening to that much music because i lost my airpods, dont
 
     This song reminds me of ME, I love the way the beat is, the lyrics are on another level.
 ## Collage
+<img width="1545" height="2000" alt="Copy of Untitled" src="https://github.com/user-attachments/assets/0fa73736-a862-40aa-be59-3ef18689b6b8" />
